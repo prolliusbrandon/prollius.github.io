@@ -1,2 +1,1 @@
-# prolliusbrandon.github.io
- My Website
+ALl rights reserved.
